@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **C++**
 
-- my Telegram -> **@Tryharderxd**
+- My Telegram -> **@Tryharderxd**
 
 - ⚡ Fun fact **i'm that nigga.**
 
